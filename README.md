@@ -5,4 +5,4 @@
 ## Install 
 
 
-http://sndup.net/gjcr
+https://drive.google.com/file/d/1dOLYwPbY8MVr7LGFQv_7s4u2e3vCVHoN/view
