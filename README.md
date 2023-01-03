@@ -5,5 +5,4 @@
 ## Install 
 
 
-https://user-images.githubusercontent.com/40816816/210331852-0c254d80-e430-41d9-9c2f-77409d30b082.mov
-
+http://sndup.net/gjcr
